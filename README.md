@@ -1,1 +1,1 @@
-# kaiji-lab🧪🔬
+# kaiji-lab🧪
